@@ -1,0 +1,2 @@
+# premium-furrow-dress-001-millstone-furrow-dressing-patt
+Stop guessing when your millstone's furrow was last dressed — inconsistent depths and forgotten patterns lead to poor grinding and costly re-dressing. You need a single source of truth.  The Millstone Furrow Dressing Pattern and Depth Log gives you a structured, instantly searchable record of every dressing session. No more sticky notes, lost noteb
